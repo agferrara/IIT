@@ -1,5 +1,3 @@
-
-
 Dear Thomas,
 I know, it's not the greatest thing in the world.
 Considering I have had to work 120 hours in the last two weeks.
